@@ -7,7 +7,6 @@
    - Email: [srujana.guttula@outlook.com](mailto:srujana.guttula@outlook.com)  
    - GitHub: [https://github.com/xsrujanax](https://github.com/xsrujanax)  
 
-😄 Pronouns: **She/Her**  
 
 
 <!---
